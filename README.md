@@ -23,12 +23,6 @@ Suponha que você e o seu amigo estejam trancadas em uma casa misteriosa onde a 
 
 ⚠️Importante! Terão que ser flexíveis, ágeis e pensar “fora da caixa” para desvendar os mistérios da casa e, por fim, escapar antes que o tempo acabe.⚠️
 
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/4ff1a7df-87d1-40cd-b5b4-72beac1b899d/c948e1b1-82da-4aba-9b27-55245381f1b5/Untitled.png)
-
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/4ff1a7df-87d1-40cd-b5b4-72beac1b899d/cbe2af6d-c816-4d65-bc7b-5843be93ee97/Untitled.png)
-
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/4ff1a7df-87d1-40cd-b5b4-72beac1b899d/bd931370-eb5f-4d2d-940b-dfae21e3ec79/Untitled.png)
-
 Deixe a sua proposta aqui:
 
 **2ª Parte – Aplicação dos conceitos estudados da lógica:**    
